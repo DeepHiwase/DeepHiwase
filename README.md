@@ -11,7 +11,7 @@
   - Email: diphiwase0987@gmail.com
   - X(Twitter): https://x.com/DeepH80082
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love & facinates about people who build something. 
+- ⚡ Fun fact: I love & facinates about people who build products like Theo Browne. 
 <!--
 **DeepHiwase/DeepHiwase** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
